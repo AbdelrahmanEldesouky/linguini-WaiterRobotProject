@@ -14,3 +14,7 @@ You'll find it here: https://www.facebook.com/ling.uini.315/posts/10994785021968
 ## Participate in Exhibitions
 We participated in the Azhar Engineering Applications Exhibition (AZEX).
 Here you will find documenting these moments: https://www.facebook.com/abdelrhman.aldesoky.7/posts/2364253596988125
+## Connect us
+Facebook: https://www.facebook.com/ling.uini.315
+LinkedIn: https://www.linkedin.com/in/abdelrahman-eldesouky-901632143
+Whatsapp: +201144716573
